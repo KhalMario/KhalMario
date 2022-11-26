@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KhalMario
+- 👀 I’m interested in learning.
+- 🌱 I’m currently learning many courses from Oracle.
+- 💞️ I’m looking to collaborate on any good project
+- 📫 Reach me at: discord:   Mario1337#0731
